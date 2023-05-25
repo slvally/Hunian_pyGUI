@@ -1,7 +1,3 @@
-# LATIHAN9DPBO2022
-
-## janji
-Saya Muhammad Rafi Shidiq 2004222 mengerjakan LP7 DPBO untuk keberkahanNya maka saya tidak melakukan kecurangan seperti yang telah dispesifikasikan. Aamiin...
 
 ## Screenshoots
 ![image](https://user-images.githubusercontent.com/96433779/163756548-27f4cfcc-a230-4e44-bb11-f828c9a552f8.png)
